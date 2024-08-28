@@ -20,8 +20,6 @@
  ![d1n1zob-8cb9039c-9f16-444b-ab58-8bc5b9e76390](https://github.com/user-attachments/assets/8a88dda0-39bd-482e-b6be-b72a73e447ba) ![anti_dora_x_spongebob__spongeora__stamp_by_marjulsansil_dcyph9y-fullview](https://github.com/user-attachments/assets/d833eec9-6801-4195-9372-65273fb7a0d9)
  
 ![d4m6765-491fced6-2314-4014-8d0c-c6d20ddf1566](https://github.com/user-attachments/assets/18ca40da-3f10-4426-a5ab-b26ad3e0f736) ![d32u719-2c0d82d9-b04d-46e4-aa96-cb16aa1b426a](https://github.com/user-attachments/assets/b86a8ed7-0d42-43de-814a-1a6902fc4faf)
-
- ![d35lq4g-8672540f-5f54-41f9-8ed6-75562f9a1170](https://github.com/user-attachments/assets/d3e4df0e-55e6-4b83-aef9-15b01d546d1b) ![anti_modern_pico_day_stamp_by_warclanw_dhflagu-fullview](https://github.com/user-attachments/assets/6b766364-575e-4b68-b114-72ddfb54ef34) 
  
  ![anti_boyfriend__fnf__by_warclanw_dfxzovu-fullview](https://github.com/user-attachments/assets/129b2f17-150b-49ec-b010-15ffff716287)  ![dagay6l-204c75df-c921-4fde-b3c6-f28f8efa1159](https://github.com/user-attachments/assets/021542a7-2347-4e29-a71d-0fe0536ffd98)
 
