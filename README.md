@@ -1,15 +1,9 @@
 ![dh791q-bc478ca2-acc7-4837-9eff-9ad2af192d10](https://github.com/user-attachments/assets/d11fb751-2898-4750-9430-f154281f1c49)
 ![d18kiov-cce78da7-903f-4ee0-8161-0d179cc6bb2f](https://github.com/user-attachments/assets/bba3aeb0-630c-4db5-b8f5-df2214f9414a)
 
-⠀⠀⠀⠀**pico**⠀or⠀gabe!⠀⠀17⠀⠀he/she/blam
+⠀⠀⠀⠀**pico**⠀or⠀gabe!⠀⠀17⠀⠀he/she/blam ⠀asian-brazilian,⠀ css nerd (unfortunately), ⠀fictive
 
-⠀⠀⠀⠀asian-brazilian,⠀ css nerd (unfortunately),
-
-⠀⠀⠀⠀fictive
-
-⠀⠀⠀⠀read my [*straw page*](https://atliens.straw.page) or [*bundlrs*](https://bundlrs.cc/pennamite) if
-⠀⠀⠀⠀you'd like to know more about me,
-⠀⠀⠀⠀or don't, that's fine too i love you
+⠀⠀⠀⠀read my [*straw page*](https://atliens.straw.page) or [*bundlrs*](https://bundlrs.cc/pennamite) if you'd like to know more about me, or don't, that's fine too i love you
 
 
 ![d4c5fjj-75759638-298f-4f56-9da3-d54bcadf370c](https://github.com/user-attachments/assets/44abb888-3bdc-4c75-bf13-4c16cb2574c4)
