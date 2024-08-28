@@ -4,6 +4,6 @@
 ⠀⠀⠀⠀asian-brazilian,⠀ css nerd (unfortunately),
 ⠀⠀⠀⠀fictive
 
-⠀⠀⠀⠀read my [*straw page*](https://atliens.straw.page) or *bundlrs* if
+⠀⠀⠀⠀read my [*straw page*](https://atliens.straw.page) or [*bundlrs*](https://bundlrs.cc/pennamite) if
 ⠀⠀⠀⠀you'd like to know more about me,
 ⠀⠀⠀⠀or don't, that's fine too i love you
