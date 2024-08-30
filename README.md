@@ -12,7 +12,7 @@
 
 
 
-[boy sign my atabook boy](https://blammed.guestbook.org)
+[boy sign my atabook boy](https://blammed.atabook.org)
 
 
 
